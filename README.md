@@ -119,7 +119,7 @@ Early warning systems
 Climate change impact assessments
 Author
 
-Dr. Tagele Mossie Aschale
+Dr. Tagele Mossie Aschale and Prof. Dr. David J Peres
 
 License
 
